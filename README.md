@@ -1,1 +1,1 @@
-# updateerror
+غیرفعال
